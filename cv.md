@@ -1,4 +1,4 @@
-# **Panikin Ilia**  
+# **Panichkin Ilia**  
 
 ## *Contacts*  
  - **Location:** Moscow, Russia  
